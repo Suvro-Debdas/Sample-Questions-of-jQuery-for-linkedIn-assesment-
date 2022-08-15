@@ -1,0 +1,1 @@
+# Sample-Questions-of-jQuery-for-linkedIn-assesment-
